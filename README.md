@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Rizki Dwi**.<br>
+Perkenalkan nama saya **Rizki Dwi Sya'bana Nugraha**.<br>
 
 Saya seorang Mahasiswa Jurusan **Sistem Informasi** di [Universitas Komputer Indonesia](https://www.unikom.ac.id/).<br>
 
